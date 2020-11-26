@@ -49,6 +49,7 @@ had Long Island along the top in large letters.  We saw some fine country on our
 way to camp.  We arrived at camp about 7:30 p.m.  Our first night in Camp was a
 little cool for we had only one blanket and it gets pretty cool at night in
 August on Long Island.
+
 We were wearing campagn hats and canvas leggings while all the other
 organizations were wearing over sea caps and spirral leggings.  We felt a little
 out of place until we were issued them.  I did not get to go to rockaway beach
@@ -77,15 +78,16 @@ fish that evening while looking over the rail at the water.  There was four
 submarines destroyers with us that evening.  The next morning I went on deck and
 there was the same things just as there was the night before except the land.
 Then the ships begin a zigzag course.  The boat began to rock and role and we
-gean to get light headed.  And sometimes it would seem as though I was walking
-up hill an dthen I would start down another.  I would start down stairs to
-anothe rdeck and it would seem as though the stairs wre ocoming up to meet me.
+began to get light headed.  And sometimes it would seem as though I was walking
+up hill and then I would start down another.  I would start down stairs to
+another deck and it would seem as though the stairs were coming up to meet me.
 The next morning the destroyers had disappeared and we were alone with the other
 two transports.  We went on until two days out of port we were met by a convoy.
 I had started to climb up to my bunk when one of the destroyers dropped a depth
 bomb which shook the boat so that I almost lost my hold.  We sighted land a
 little while after dinner and arrived in the harbor of Breast at about 5 pm.m on
 the 7th of September.
+
 The ship was so large tht they culd not get it up to the piers and had to anchor
 it out in the harbor.  We did not get off until about 5:30 on the evening of the
 8th of Sept.  Then we loaded on another little steamer and was taken ashore.  We
@@ -105,10 +107,10 @@ lay down on teh floor .  The next morning we unloaded about 9 o'clock at Messac.
 We hiked over to Bain about 9 Kilomters (6 miles).  We were pretty well played
 out when we arrived there late in the evening.  we were billeted inn lofts of
 barns and got a good nights sleeep.  we had a cold supper the night that we
-arrievd in Bain but we ate like hungry dogs.  The only time I really saw
+arrived in Bain but we ate like hungry dogs.  The only time I really saw
 soldiers eat their corn willie with such an appitite.  We hadn't had anything to
 eat for 24 hours.  I was promoted to corporal while we were here.  We drilled
 every day and went through all kinds of setting up exercises.  We had two new
 Lieutants and they put us in the best physical shape that we have ever been in
-by double timin gus until we were out of breath and then putting us through all
+by double timing us until we were out of breath and then putting us through all
 kind of movements standing until we were ready to double time some more.
