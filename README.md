@@ -4,7 +4,13 @@
 
 > This has been transcribed from Nancy Jones's
 > transcription.  Nancy turned it from paper hand-written journal to
-> typed-on-paper.  And I'm turning it from typed-on-paper to digitalized.
+> typed-on-paper.  And I'm turning it from typed-on-paper to digitalized.  If
+> you're simply wanting to sit down and read this I recommend either reading it
+> here on (presumably) the GitHub page or opening up README.pdf.  I
+> intentionally chose to format README.pdf in a serif font and a different
+> style than the typewriter style that is readable in the photos folder or the
+> san-serif modern styles of this here file.  However you choose to read it I
+> hope you enjoy this piece of our history.
 >
 > Jesse Atkinson (Wilbur Atkinson's great grandson)
 
